@@ -1,4 +1,4 @@
-
+Free new hypershot Scripts | auto-win + inf-ammo brings you the best free scripts for hypershot, featuring auto-win and inf-ammo. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
